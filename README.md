@@ -1,16 +1,14 @@
-Exit is a fundamental right. 
+Voice vs exit is an important concept in political science.
 
-Voice vs. Exit. 
-
-If a company or country is in decline, you can try voice or exit. 
-
-Voice: change the system from within (voting). 
+If a company or country is in decline, people can try voice or exit to create a better institution.   
+Voice: change the system from within.  
 Exit: leave to create a new system or join a competitor. 
 
-Exiting institutions is fundamental to making change to a system. Exit also gives voice more power. It amplifies voice. 
+Exit and voice are both important, but exit amplifies voice.
 
-Exit is peaceful. In exit, people opt-in to better way of doing things. 
+Exit is opt-in and peaceful. Exit priortitizes building better alternatives rather than fighting over existing power. 
 
+Through exit, we can build better companies, currencies, and countries. 
 
 Examples from @Naval's tweet: 
 Bitcoin is an exit from the Fed.
